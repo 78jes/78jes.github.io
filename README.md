@@ -1,1 +1,1 @@
-# 78jes.github.io
+# 78jes.github.io/cv/
